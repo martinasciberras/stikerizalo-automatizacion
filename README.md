@@ -1,0 +1,1 @@
+# stikerizalo-automatizacion
